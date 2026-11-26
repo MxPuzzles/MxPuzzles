@@ -11,15 +11,12 @@ $${\color{#D0DFAF}ᣟ݂ 𓐇۪\color{#F2F8DD}꒰\ \color{#5CD695}AUD\color{#56C9
 
 $${\color{#706F68} ࣪ \color{#423D43}˖\ \color{#5B585B}C+H\ \color{#535054}always\ \color{#5B585B}enc\color{#535054}oura\color{#5A535B}ged\ \color{#5B585B}˳꣑୧ ۠}$$
 
-<details>
-<summary> $${\color{#CDDDA8}DNI:}$$ </summary>
+$${\color{#CDDDA8}DNI:}$$
 $${\color{#9BA487}Basic\ DNI\ Criteria\ ⸝\ Pro﹠DarkShippers\ ⸝\ Radqueers}$$
 $${\color{#9BA487}Bigots\ ⸝\ TCC\ ⸝ TCOAAL\ ⸝\ DSMP\ ⸝\ R*pe\ jokes}$$
 $${\color{#9BA487}Under\ -14\ ⸝\ Anti-Neopronouns﹠Xenogenders}$$
 $${\color{#9BA487}Mr.\ Puzzles\ x\ Meggy\ Shippers\ (I'm\ extremely\ uncomfortable\ of\ yall)}$$
-$${\color{#9BA487}You\ call\ WPNZ\ a\ 'groomer'\ (don't\ be\ throwing\ a\ serious\ word\ around)}$$ㅤ</br>
-
-</details>
+$${\color{#9BA487}You\ call\ WPNZ\ a\ 'groomer'\ (don't\ be\ throwing\ a\ serious\ word\ around)}$$
 
 ![](https://files.catbox.moe/l5zza0.png)
 ![](https://files.catbox.moe/xel3p2.png)
