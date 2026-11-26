@@ -4,14 +4,12 @@
 
 <p align="center"><img width="80" src="https://files.catbox.moe/rcexww.gif" alt="mrpuzzles2" align="center" width="100" /></p> 
 
-$${\color{#D0DFAF}♡\color{#F2F8DD}⏝\ \color{#C0CDA0}⸝⸝\ \color{#FF7F43}Apple \color{#706F68}ₒᵣ\ \color{#E18B21}Fang　\color{#C0CDA0}◞}$$
-$${\color{#FF9868}He\color{#F2F8DD}/\color{#FF7F43}They\color{#D0DFAF}/\color{#E18B21}Xe\ \color{#F8EF8B}⋆\ \color{#589D8D}``\ \color{#DEF05D}Masc\ \color{#A2C145}Terms\ perf\ \color{#589D8D}‚‚ \\color{#F8EF8B}˖}$$ </br>
+$${\color{#D0DFAF}౿　\color{#F2F8DD} ݁  .\ \color{#589D8D}⸝⸝\ \color{#FF7F43}Apple \color{#706F68}ₒᵣ\ \color{#E18B21}Fang　\color{#C0CDA0}︵   \color{#D0DFAF}｡ Ꮺ ˚}$$
+$${\color{#706F68}  ִ ✦⌣\ \color{#FF9868}He\color{#F2F8DD}/\color{#FF7F43}They\color{#D0DFAF}/\color{#E18B21}Xe\ \color{#F8EF8B}⋆\ \color{#589D8D}``\ \color{#ECD736}Masc\ \color{#ECC536}Terms\ \color{#ECAA36}perf\ \color{#589D8D}‚‚ \\color{#F8EF8B}˖}$$ </br>
 
-$${\color{#D0DFAF}ᣟ݂ 𓐇۪꒰\ AUD\color{#DEF05D}HD\ |\ BP\color{#B8C64D}D\ |\ 4\color{#A2C145}w5\ ꒱  ͜͝  ̑͡♪}$$ </br>
+$${\color{#D0DFAF}ᣟ݂ 𓐇۪\color{#F2F8DD}꒰\ \color{#5CD695}AUD\color{#56C9A1}HD\ \color{#706F68}|\ \color{#51BE7E}BP\color{#6BBE51}D\ \color{#706F68}|\ \color{#6BBE51}4\color{#5CAD41}w5\ \color{#C0CDA0}꒱\color{#D0DFAF}  ͜͝  ̑͡\color{#706F68}♪}$$ </br>
 
-$${\color{#A2C145}(˶˃\color{#DEF05D}ᆺ˂˶\color{#B8C64D})\ \color{#A2C145}C+H\ \color{#DEF05D}always\ enc\color{#A2C145}oura\color{#B8C64D}ged}$$
-$${\color{#A2C145}\ W2I　\color{#DEF05D}Offtabe\ \color{#B8C64D}a\ lot　 \color{#A2C145}Social\ \color{#DEF05D}Anxiety}$$
-$${\color{#A2C145}＆　Paranoia\ \color{#B8C64D}Final\ \color{#DEF05D}Boss}$$
-
+$${\color{#706F68} ࣪ \color{#423D43}˖\ \color{#5B585B}C+H\ \color{#535054}always\ \color{#5B585B}enc\color{#535054}oura\color{#5A535B}ged\ \color{#5B585B}˳꣑୧ ۠}$$
+$${\color{#CDDDA8}DNI:}$$
 ![](https://files.catbox.moe/l5zza0.png)
 ![](https://files.catbox.moe/xel3p2.png)
