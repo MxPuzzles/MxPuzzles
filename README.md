@@ -11,5 +11,6 @@ $${\color{#D0DFAF}ᣟ݂ 𓐇۪\color{#F2F8DD}꒰\ \color{#5CD695}AUD\color{#56C9
 
 $${\color{#706F68} ࣪ \color{#423D43}˖\ \color{#5B585B}C+H\ \color{#535054}always\ \color{#5B585B}enc\color{#535054}oura\color{#5A535B}ged\ \color{#5B585B}˳꣑୧ ۠}$$
 $${\color{#CDDDA8}DNI:}$$
+
 ![](https://files.catbox.moe/l5zza0.png)
 ![](https://files.catbox.moe/xel3p2.png)
