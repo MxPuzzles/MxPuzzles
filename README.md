@@ -23,7 +23,6 @@ $${\color{#9BA487}You\ call\ WPNZ\ a\ 'groomer'\ (don't\ be\ throwing\ a\ seriou
 ![](https://files.catbox.moe/l5zza0.png)
 ![](https://files.catbox.moe/mnleye.png)
 ![](https://files.catbox.moe/s46xu8.png)
-
 <p align="center"><img width="300" src="https://files.catbox.moe/pbhkis.png" alt="mrpuzzles2" align="center" width="100" /></p> 
 
 <table border="0" align="center" style="margin-bottom 20" style="margin-right 2">
