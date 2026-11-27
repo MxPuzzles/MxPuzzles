@@ -4,6 +4,8 @@
 
 <p align="center"><img width="80" src="https://files.catbox.moe/rcexww.gif" alt="mrpuzzles2" align="center" width="100" /></p> 
 
+<p align="center"><img width="300" src="https://files.catbox.moe/lj44ee.png" alt="mrpuzzles2" align="center" width="100" /></p> 
+
 $${\color{#D0DFAF}౿　\color{#F2F8DD} ݁  .\ \color{#589D8D}⸝⸝\ \color{#FF7F43}Apple \color{#706F68}ₒᵣ\ \color{#E18B21}Fang　\color{#C0CDA0}︵   \color{#D0DFAF}｡ Ꮺ ˚}$$
 $${\color{#706F68}  ִ ✦⌣\ \color{#FF9868}He\color{#F2F8DD}/\color{#FF7F43}They\color{#D0DFAF}/\color{#E18B21}Xe\ \color{#F8EF8B}⋆\ \color{#589D8D}``\ \color{#ECD736}Masc\ \color{#ECC536}Terms\ \color{#ECAA36}perf\ \color{#589D8D}‚‚ \\color{#F8EF8B}˖}$$ </br>
 
