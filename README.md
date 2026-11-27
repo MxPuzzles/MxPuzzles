@@ -1,5 +1,7 @@
 <div align="center">        
-              
+
+![](https://files.catbox.moe/6h5qkt.png)
+
 <p align="center"><img width="250" src="https://files.catbox.moe/6abwtg.png" alt="mrpuzzles" align="right" width="200" /></p>
 
 <p align="center"><img width="80" src="https://files.catbox.moe/rcexww.gif" alt="mrpuzzles2" align="center" width="100" /></p> 
@@ -10,7 +12,9 @@ $${\color{#706F68}  ִ ✦⌣\ \color{#FF9868}He\color{#F2F8DD}/\color{#FF7F43}T
 $${\color{#D0DFAF}ᣟ݂ 𓐇۪\color{#F2F8DD}꒰\ \color{#5CD695}AUD\color{#56C9A1}HD\ \color{#706F68}|\ \color{#51BE7E}BP\color{#6BBE51}D\ \color{#706F68}|\ \color{#6BBE51}4\color{#5CAD41}w5\ \color{#C0CDA0}꒱\color{#D0DFAF}  ͜͝  ̑͡\color{#706F68}♪}$$ </br>
 
 $${\color{#706F68} ࣪ \color{#423D43}˖\ \color{#5B585B}C+H\ \color{#535054}always\ \color{#5B585B}enc\color{#535054}oura\color{#5A535B}ged\ \color{#5B585B}˳꣑୧ ۠}$$
-![](https://files.catbox.moe/pbhkis.png)
+
+<p align="center"><img width="300" src="https://files.catbox.moe/pbhkis.png" alt="mrpuzzles2" align="center" width="100" /></p> 
+
 $${\color{#CDDDA8}DNI:}$$
 $${\color{#9BA487}Basic\ DNI\ Criteria\ ⸝\ Pro﹠DarkShippers\ ⸝\ Radqueers}$$
 $${\color{#9BA487}Bigots\ ⸝\ TCC\ ⸝ TCOAAL\ ⸝\ DSMP\ ⸝\ R*pe\ jokes}$$
