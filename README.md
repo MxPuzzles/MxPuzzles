@@ -11,8 +11,6 @@ $${\color{#D0DFAF}ᣟ݂ 𓐇۪\color{#F2F8DD}꒰\ \color{#5CD695}AUD\color{#56C9
 
 $${\color{#706F68} ࣪ \color{#423D43}˖\ \color{#5B585B}C+H\ \color{#535054}always\ \color{#5B585B}enc\color{#535054}oura\color{#5A535B}ged\ \color{#5B585B}˳꣑୧ ۠}$$
 
-<p align="center"><img width="300" src="https://files.catbox.moe/pbhkis.png" alt="mrpuzzles2" align="center" width="100" /></p> 
-
 $${\color{#CDDDA8}DNI:}$$
 $${\color{#9BA487}Basic\ DNI\ Criteria\ ⸝\ Pro﹠DarkShippers\ ⸝\ Radqueers}$$
 $${\color{#9BA487}Bigots\ ⸝\ TCC\ ⸝ TCOAAL\ ⸝\ DSMP\ ⸝\ R*pe\ jokes}$$
@@ -23,6 +21,8 @@ $${\color{#9BA487}You\ call\ WPNZ\ a\ 'groomer'\ (don't\ be\ throwing\ a\ seriou
 ![](https://files.catbox.moe/l5zza0.png)
 ![](https://files.catbox.moe/mnleye.png)
 ![](https://files.catbox.moe/s46xu8.png)
+
+<p align="center"><img width="300" src="https://files.catbox.moe/pbhkis.png" alt="mrpuzzles2" align="center" width="100" /></p> 
 
 <table border="0" align="center" style="margin-bottom 20" style="margin-right 2">
     <tr align="center"></tr>
