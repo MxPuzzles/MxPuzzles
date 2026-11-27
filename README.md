@@ -1,7 +1,5 @@
 <div align="center">        
 
-![](https://files.catbox.moe/6h5qkt.png)
-
 <p align="center"><img width="250" src="https://files.catbox.moe/6abwtg.png" alt="mrpuzzles" align="right" width="200" /></p>
 
 <p align="center"><img width="80" src="https://files.catbox.moe/rcexww.gif" alt="mrpuzzles2" align="center" width="100" /></p> 
