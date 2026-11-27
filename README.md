@@ -19,6 +19,17 @@ $${\color{#9BA487}Bigots\ ⸝\ TCC\ ⸝ TCOAAL\ ⸝\ DSMP\ ⸝\ R*pe\ jokes}$$
 $${\color{#9BA487}Under\ -14\ ⸝\ Anti-Neopronouns﹠Xenogenders}$$
 $${\color{#9BA487}Mr.\ Puzzles\ x\ Meggy\ Shippers\ (I'm\ extremely\ uncomfortable\ of\ yall)}$$
 $${\color{#9BA487}You\ call\ WPNZ\ a\ 'groomer'\ (don't\ be\ throwing\ a\ serious\ word\ around)}$$
-
+    
 ![](https://files.catbox.moe/l5zza0.png)
-![](https://files.catbox.moe/xel3p2.png)
+![](https://files.catbox.moe/mnleye.png)
+![](https://files.catbox.moe/s46xu8.png)
+
+<table border="0" align="center" style="margin-bottom 20" style="margin-right 2">
+    <tr align="center"></tr>
+      <th>
+        <a href="https://github.com/MissingTextuer">Main</a>　
+        <a href="https://pronouns.cc/@Froggydude">Pronouns</a>　
+        <a href="https://appleyummie.atabook.org/">Atabook</a>　
+      </th>
+    </table>
+  <table align="center">
