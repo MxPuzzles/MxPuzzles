@@ -20,5 +20,7 @@ $${\color{#9BA487}Under\ -14\ ⸝\ Anti-Neopronouns﹠Xenogenders}$$
 $${\color{#9BA487}Mr.\ Puzzles\ x\ Meggy\ Shippers\ (I'm\ extremely\ uncomfortable\ of\ yall)}$$
 $${\color{#9BA487}You\ call\ WPNZ\ a\ 'groomer'\ (don't\ be\ throwing\ a\ serious\ word\ around)}$$
 
+<p align="center"><img width="300" src="https://files.catbox.moe/y27p8d.png" alt="mrpuzzles2" align="center" width="100" /></p> 
+
 ![](https://files.catbox.moe/l5zza0.png)
 ![](https://files.catbox.moe/xel3p2.png)
