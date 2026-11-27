@@ -4,9 +4,9 @@
 
 <p align="center"><img width="250" src="https://files.catbox.moe/6abwtg.png" alt="mrpuzzles" align="right" width="200" /></p>
 　
-<p align="center"><img width="80" src="https://files.catbox.moe/rcexww.gif" alt="mrpuzzles2" align="center" width="100" /></p> 
 
-<p align="center"><img width="80" src="https://files.catbox.moe/p4glwl.gif" alt="mrwpnz" align="center" width="100" /></p> 
+![](https://files.catbox.moe/rcexww.gif)
+![](https://files.catbox.moe/p4glwl.gif)
 
 $${\color{#D0DFAF}౿　\color{#F2F8DD} ݁  .\ \color{#589D8D}⸝⸝\ \color{#FF7F43}Apple \color{#706F68}ₒᵣ\ \color{#E18B21}Fang　\color{#C0CDA0}︵   \color{#D0DFAF}｡ Ꮺ ˚}$$
 $${\color{#706F68}  ִ ✦⌣\ \color{#FF9868}He\color{#F2F8DD}/\color{#FF7F43}They\color{#D0DFAF}/\color{#E18B21}Xe\ \color{#F8EF8B}⋆\ \color{#589D8D}``\ \color{#ECD736}Masc\ \color{#ECC536}Terms\ \color{#ECAA36}perf\ \color{#589D8D}‚‚ \\color{#F8EF8B}˖}$$ </br>
@@ -28,6 +28,7 @@ $${\color{#9BA487}You\ call\ WPNZ\ a\ 'groomer'\ (don't\ be\ throwing\ a\ seriou
 
 <p align="center"><img width="470" src="https://files.catbox.moe/9zs31q.png" alt="mrpuzzles2" align="left" width="100" /></p> 
 
+ 　
 <table border="0" align="center" style="margin-bottom 20" style="margin-right 2">
     <tr align="center"></tr>
       <th>
