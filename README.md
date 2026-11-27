@@ -1,6 +1,6 @@
 <div align="center">        
 
-<p align="center"><img width="470" src="https://files.catbox.moe/0phfhi.png" alt="mrpuzzles2" align="left" width="100" /></p> 
+<p align="center"><img width="470" src="https://files.catbox.moe/dp61kc.png" alt="mrpuzzles2" align="left" width="100" /></p> 
 
 <p align="center"><img width="250" src="https://files.catbox.moe/6abwtg.png" alt="mrpuzzles" align="right" width="200" /></p>
 　
@@ -24,7 +24,7 @@ $${\color{#9BA487}You\ call\ WPNZ\ a\ 'groomer'\ (don't\ be\ throwing\ a\ seriou
 ![](https://files.catbox.moe/mnleye.png)
 ![](https://files.catbox.moe/s46xu8.png)
 
-<p align="center"><img width="470" src="https://files.catbox.moe/hvzekg.png" alt="mrpuzzles2" align="left" width="100" /></p> 
+<p align="center"><img width="470" src="https://files.catbox.moe/9zs31q.png" alt="mrpuzzles2" align="left" width="100" /></p> 
 
 <table border="0" align="center" style="margin-bottom 20" style="margin-right 2">
     <tr align="center"></tr>
